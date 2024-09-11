@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SYDNEY-254
 - 👀 I’m interested in Inspection
-- 🌱 I’m currently learning Military 
+- 🌱 I’m currently learning ar Military and technology 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me sydneyomariba55@gmail.com
 - 😄 Pronouns: him
