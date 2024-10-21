@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SYDNEY-254
-- 👀 I’m interested in Inspection
+- 👀 I’m interested in improving technology 
 - 🌱 Military and information technology 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ Humble as well 
 - 📫 How to reach me sydneyomariba55@gmail.com
 - 😄 Pronouns: him
 - ⚡ Fun fact: always crazy my guy
